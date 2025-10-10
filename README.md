@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Viswas Yadati
 
-### Full-Stack Developer | Business Management Graduate | Tech Enthusiast
+### Full-Stack Developer | Information Technology Graduate | Tech Enthusiast
 
 ---
 
